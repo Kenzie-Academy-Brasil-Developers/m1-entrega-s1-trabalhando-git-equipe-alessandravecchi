@@ -26,3 +26,6 @@ Depois que todas as pessoas da equipe terminarem o projeto, revisem os passos a 
 ## Links
 
 Tenha certeza de enviar o link do repositório do Github.
+Alessandra Paulino Vecchi
+Sou casada tenho 7 filhos, moro em palhoça
+TI para mim significa esperança de vida, sempre amei e agora quero me dedicar acada dia a aprender!
